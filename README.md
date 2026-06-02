@@ -1,0 +1,1 @@
+# Agrinho-Tecnologias-para-Redu-o-de-Desperd-cio-de-Alimentos-na-Colheita
